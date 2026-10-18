@@ -2,9 +2,9 @@
 
 **Georgia Tech — Computer Science (BS/MS)**  
 
-Currently: **Working at Google · Building random stuff**
+Currently: **Looking for New Grad Roles · Building random stuff**
 
-Previously: **Meta · Warner Bros. Discovery · PTC (Onshape) · Joulea (ATDC) · Research at SocWeb Lab at GT**  
+Previously: **Google · Meta · Warner Bros. Discovery · PTC (Onshape) · Joulea (ATDC) · Research at SocWeb Lab at GT**  
 
 
 Check out my website:
